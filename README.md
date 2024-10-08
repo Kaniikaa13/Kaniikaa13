@@ -2,7 +2,7 @@
 - 👀 I’m interested in music and coding
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on various live projects to gain hands on experience and enhance my skills
-- 📫 How to reach me:  @kaniikaa__ instagram , https://www.linkedin.com/in/kanika-pachauri-63679b210/ linkedin
+- 📫 How to reach me: , https://www.linkedin.com/in/kanika-pachauri-63679b210/ linkedin
 - 😄 Pronouns: she/her
   
 
